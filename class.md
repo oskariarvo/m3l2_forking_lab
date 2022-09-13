@@ -1,0 +1,1 @@
+Oskari, Turku, meta back-end developer
